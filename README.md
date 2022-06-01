@@ -1,1 +1,1 @@
-# typeregency.my.to
+# Type-0 Was Here!
